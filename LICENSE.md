@@ -1,4 +1,4 @@
-#  
+#  OneNote for macOS new Script: reminders & widgets is the best OneNote for macOS script, featuring reminders and widgets. Safe, efficient, and optimized for macOS users.
 
 
 
